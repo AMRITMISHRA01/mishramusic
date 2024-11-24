@@ -1,7 +1,7 @@
 <h2 align="center">
-    ──「 ᴛᴀɴᴜ ダ ᴍᴜsɪᴄ 
+    ──「 MISHRA ダ ᴍᴜsɪᴄ 
 <p align="center">
-  <img src="https://i.ibb.co/2FSqhSr/photo-2024-09-19-18-33-46-7416425646991081500.jpg">
+  <img src="https://files.catbox.moe/eakqug.jpg">
 </p>
 
 <h3 align="center">
